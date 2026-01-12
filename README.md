@@ -45,7 +45,7 @@
 ---
 
 ## 🌍 Connect With Me
-- 💼 LinkedIn: [Your LinkedIn](#)
+- 💼 LinkedIn: [www.linkedin.com/in/ismaiel-alkhuder-47246247](#)
 - 🌐 Portfolio: [Your Website](#)
 - 📧 Email: skhuder@gmail.com
 
