@@ -47,7 +47,7 @@
 ## 🌍 Connect With Me
 - 💼 LinkedIn: [Your LinkedIn](#)
 - 🌐 Portfolio: [Your Website](#)
-- 📧 Email: your@email.com
+- 📧 Email: skhuder@gmail.com
 
 ---
 
